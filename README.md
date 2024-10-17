@@ -9,11 +9,11 @@
 - [Mubashar Nouman](https://www.youtube.com/channel/UC6lUUWMyuiibsJzV8BNdaEQ)
  -->
 
-🤵 Founder & CEO of @ Zenro Softwares @ Zev AI 🤖
+🤵 Founder & CEO of @ Zencho Softwares @ Zorio AI 🤖
 	
 👨‍💻 AI Engineer CargoAI
 	
-💸 Help 80+ Clients via Generative AI & Automation
+💸 Help 50+ Clients via Generative AI & Automation
 
 📧 Book free 1v1 consultation www.linkedin.com/in/syed-muhammad-zarbe-abbas-hamdani-011831322
  
